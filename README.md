@@ -1,8 +1,11 @@
- Test Technician and amataur maker.
- Looking to make a variety of things with the IoT and AI tech!
+Test Technician and amataur maker.
+Looking to make a variety of things with the IoT and AI tech!
+
 
 Email: joshua.beck.0908@gmail.com
+
 Hackaday: https://hackaday.io/JoshuaBeck
+
 Twitter: https://twitter.com/JoshuaBeck7088
 
 <!---
