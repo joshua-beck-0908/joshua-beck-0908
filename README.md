@@ -1,4 +1,4 @@
-Test Technician and amataur maker.
+Test Technician, electrical engineer, programmer, and amataur maker.
 Looking to make a variety of things with the IoT and AI tech!
 
 
